@@ -1,6 +1,6 @@
-[castle.docx](https://github.com/user-attachments/files/18152783/castle.docx)
 
-In the ever-evolving world of digital entertainment, new streaming apps are emerging at a rapid pace, each offering unique features and experiences. Among the latest entries is the Castle App, which promises to provide users with an innovative and engaging way to stream movies, TV shows, and more. Whether you're a fan of classic films or cutting-edge series, Castle App aims to become your go-to destination for online streaming.
+
+In the ever-evolving world of digital entertainment, new streaming apps are emerging at a rapid pace, each offering unique features and experiences. Among the latest entries is the <a href="https://castlemodapk.app">Castle App</a>, which promises to provide users with an innovative and engaging way to stream movies, TV shows, and more. Whether you're a fan of classic films or cutting-edge series, Castle App aims to become your go-to destination for online streaming.
 What is Castle App?
 Castle App is a versatile streaming platform that offers a vast library of content to cater to diverse tastes and preferences. The app is designed to deliver high-quality video streaming for a range of genres, including action, drama, comedy, documentary, and more. Users can enjoy an extensive catalog of on-demand content, as well as exclusive shows and movies that aren't available on other platforms.
 Key Features of Castle App
